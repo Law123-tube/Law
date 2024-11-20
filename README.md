@@ -1,2 +1,2 @@
 # Law
-Very hogh quality picture 
+Very high quality picture 
